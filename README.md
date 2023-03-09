@@ -1,3 +1,4 @@
 # Quino Documentation
 
-Helo world
+Welcome to Quino's Docs
+
