@@ -19,10 +19,10 @@ Welcome to [Quino](https://beta.quino.ai/)'s Documentation. This site is tempora
 
 
 # Upcoming Features
-- Better PDF reader, simpler & fluid highlighting
-- Progress bar for document processing
-- Better summarization
-- Ctrl+F and Ctrl+G shortcuts for search and question answering
+- Better PDF reader, simpler & fluid highlighting.
+- Progress bar for document processing.
+- Better summarization.
+- Ctrl+F and Ctrl+G shortcuts for search and question answering.
 
 # Contact
 Feel free to reach out to us anytime at hello@quino.ai.
