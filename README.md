@@ -24,6 +24,10 @@ Welcome to [Quino](https://beta.quino.ai/)'s Documentation. This site is tempora
 - Better summarization
 - Ctrl+F and Ctrl+G shortcuts for search and question answering
 
+# Giveaway
+[Visit Giveaway Rules](./giveaway/giveaway-rules.md)
+
 # Contact
 Feel free to reach out to us anytime at hello@quino.ai.
+
 
