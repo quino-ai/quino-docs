@@ -4,7 +4,7 @@ No purchase or payment of any kind is required to enter or win this giveaway or 
 
 This giveaway is not associated with Instagram or TikTok in any way. The Organiser of the Giveaway is Minyma Technologies SRL., Ciceu nr. 52, Harghita, Romania.
 
-The Quino TikTok and Instagram Giveaway commences on May 29, 2023, at 8:00 a.m. PST and concludes on July 13, 2023, at 11:59 p.m. PST.
+The Quino TikTok and Instagram Giveaway commences on June 1, 2023, at 8:00 a.m. PST and concludes on July 15, 2023, at 11:59 p.m. PST.
 
 **Eligibility:** The Giveaway is open only to individuals who are at least 18 years old as of the date of entry. Entries from commercial enterprises and business entities are not eligible. Employees, independent contractors, officers, and directors of the Organiser (Minyma Technologies SRL), its affiliates, subsidiaries, advertising and promotion agencies, suppliers, and their immediate family members and/or those living in the same household are not eligible to participate. The Giveaway is subject to all applicable federal, state, and local laws and regulations. The Giveaway is void where restricted or prohibited by law.
 
@@ -48,4 +48,4 @@ If you wish to receive a copy of the Winners' names or a copy of these Rules, pl
 
 By entering the Giveaway, you acknowledge and agree that the Released Entities, including the Organiser, TikTok, their subsidiaries, affiliates, and other associated parties, are not liable for any claims, damages, losses, or liabilities arising from or related to your participation in the Giveaway, acceptance, possession, use, or misuse of any prize, technical or human failures, malfunctions, or difficulties, unauthorized intervention, electronic or human errors, late, lost, stolen, damaged, or incomplete entries, printing or typographical errors, or any other conditions beyond the control of the Organiser. You release and hold harmless the Released Entities from any losses, damages, rights, claims, or actions of any kind, including statutory and common law claims, arising from or related to the Giveaway, your participation, the prize, and/or its acceptance, possession, use, or misuse.
 
-Minyma Technologies SRL., May 28, 2023
+Minyma Technologies SRL., June 1, 2023
